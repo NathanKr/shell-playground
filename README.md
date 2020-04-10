@@ -1,1 +1,1 @@
-# shell-playground
+more info <a href="https://docs.google.com/presentation/d/1VOl7CKoeVHGOOfBIEIv0FxQcrV3neGEi58cKziUYXSA/edit?usp=sharing">here</a>
